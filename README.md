@@ -1,4 +1,3 @@
-Maria Eduarda 
-✞
+Maria Eduarda
 ٭٭٭✞
 
